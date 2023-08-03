@@ -1,1 +1,0 @@
-Damir is God
